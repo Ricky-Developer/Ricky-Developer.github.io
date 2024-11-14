@@ -1,3 +1,3 @@
-# mayuelala.github.io
+# ricky-developer.github.io
 
-https://mayuelala.github.io/
+https://ricky-developer.github.io/
